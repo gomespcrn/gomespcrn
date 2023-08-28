@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @gomespcrn
+- 👀 I’m interested in HTML/CSS
+- 🌱 I’m currently learning HTML/CSS
+- 💞️ I’m looking to collaborate on productive projects
+- 📫 How to reach me on Linkedin
+-> www.linkedin.com/in/isabelly-gomes-de-oliveira-96bb0026a
